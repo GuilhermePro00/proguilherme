@@ -1,2 +1,2 @@
 # proguilherme
-meu primeiro trabalho sou sigma😎😎😎😎👌😊😂🤣🤣🤣😂😂😂😁😁😁👍👍👍👍👍👍😒😒😒👌👌👌👌
+meu primeiro trabalho �
